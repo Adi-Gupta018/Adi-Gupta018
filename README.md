@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **guptaaditya1801@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZUqY5yTZmM5kQHjli29CI4_zh-1zpP8_/view?usp=sharing](Resume)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1ZUqY5yTZmM5kQHjli29CI4_zh-1zpP8_/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
